@@ -5,5 +5,5 @@ Nos meus estudos pretendo me focar no universo mobile, sendo mais especifico na 
 #Onde me encontrar
 Facebook: fb.com/emersonguimaraess
 Twitter: @EmersonGuim
-
 Site: www.emersonguim.com
+
